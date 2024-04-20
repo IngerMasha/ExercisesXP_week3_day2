@@ -1,1 +1,1 @@
-Exercises XP Gold
+ExercisesXP Ninja
